@@ -1,0 +1,1 @@
+# mening-birinchi-github-loyiham
